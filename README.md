@@ -2,4 +2,4 @@
 
 Just About BLACKHAT USA2022 PDF Public
 
-Download in [release](./../../releases/tag/release) or this [mirror](https://letsupload.cc/)
+Download in [release](./../../releases/tag/release) or this [mirror](https://mir.cr/NZMXETIY)
